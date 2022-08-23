@@ -25,7 +25,7 @@
 - 🤔 My interests are UI/UX, Grahic Designing and Sketching
 - 😄 Pronouns: He/Him
 - 📫 Email me at [sauravboro551@gmail.com](mailto:sauravboro551@gmail.com).
-- 📝 See my [Curriculum Vitae](https://drive.google.com) to get more info.
+- 📝 See my [Curriculum Vitae](https://drive.google.com/file/d/16Jk6uTjePYsYvs1eJSAMNfe9VqsU6aA0/view?usp=sharing) to get more info.
 
 
 ## 📈 &nbsp;Contribution Statistics
